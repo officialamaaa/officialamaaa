@@ -8,5 +8,7 @@
 - 📫 Reach me at amanamabasiakpan@gmail.com
 - 👀 https://officialamaaa.github.io
 
+- Personal blog https://itstechornothing.blogspot.com
+
 
 
